@@ -1,1 +1,1 @@
-hi hats up whats going on i am just trying to recall what i learned yesterday
+hi whats up what's going on I am just trying to recall what I learned yesterday
